@@ -1,1 +1,1 @@
-# rsschool-cv
+https://bardilev.github.io/rsschool-cv/
